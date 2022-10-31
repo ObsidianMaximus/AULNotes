@@ -10,3 +10,9 @@ Saare notes hein bc.
   <img align="left" alt="Obsidian's Telegram" width="70px" src="https://img.shields.io/badge/-Telegram-FF0000?logo=Telegram&logoColor=fff" />
 </a>
 
+------------------------------------------------------------
+
+Syllabus : [here]
+
+
+[here]: https://www.amity.edu/course-details.aspx?fd=D8lvJTW19oE=&cfn=PBp96ODNygs=
