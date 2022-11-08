@@ -8,6 +8,8 @@ Link - [here]
 
 Engineering Mathematics All Modules Lectures - [youtube]
 
+Some more yt videos - [yt](https://youtube.com/c/MKSTUTORIALSbyManojSir)
+
 
 
 
